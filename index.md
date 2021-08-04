@@ -13,16 +13,8 @@ August 28th, 6 PM
 Please RSVP food chioces via the Google Form below by __August 20th__
 
 * Roasted Free-Range Chicken
-
-  * Lemon thyme jus, celery root puree, roasted cauliflower
-
 * Grilled Atlantic Salmon
-
-  * Parsley beurre blanc, orange zest, fennel risotto
-
 * Balsamic Braised Beef Short Ribs
-
-  * Roasted garlic potato puree, onions, carrots, balsamic emulsion
 
 <iframe src="https://docs.google.com/forms/d/e/1FAIpQLSfExntQKNQ_S9tKpN5fJ9BLnGbYCofDHai3QAsHUDXPsrshdw/viewform?embedded=true" width="640" height="1435" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
 
