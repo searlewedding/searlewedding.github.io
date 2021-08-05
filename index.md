@@ -2,11 +2,15 @@
 
 # Salt Lake Dinner
 
-We're having a reception dinner to celebrate Jake and Kierra's marriage, and we hope you can come!
+Thank you for responding to our invitation! We're having a reception dinner to celebrate Jake and Kierra's marriage, and we hope you can come!
 
-## Date & Time
+## Details
 
-August 28th: 6 PM
+Saturday, August 28th: 6 PM  
+[The Grand America Hotel  
+555 S Main St, Salt Lake City, UT 84111](https://g.page/thegrandamerica?share)  
+Formal dress attire  
++1's are welcome
 
 ## Dinner Options
 
@@ -18,7 +22,7 @@ Please RSVP food chioces via the Google Form below by **August 20th**
 
 <iframe src="https://docs.google.com/forms/d/e/1FAIpQLSfExntQKNQ_S9tKpN5fJ9BLnGbYCofDHai3QAsHUDXPsrshdw/viewform?embedded=true" width="100%" height="1200" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
 
-## Location
+## Location Details
 
 [The Grand America Hotel  
 555 S Main St, Salt Lake City, UT 84111](https://g.page/thegrandamerica?share)
