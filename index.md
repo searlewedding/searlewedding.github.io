@@ -14,7 +14,9 @@ Formal dress attire
 
 ## Dinner Options
 
-Please RSVP food chioces via the Google Form below by **August 20th**
+Please RSVP food choices via the Google Form below by **August 20th**
+
+Each option is gluten-free
 
 - Roasted Free-Range Chicken
 - Grilled Atlantic Salmon
