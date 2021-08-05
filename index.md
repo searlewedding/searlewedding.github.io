@@ -2,7 +2,7 @@
 
 # Salt Lake Dinner
 
-We're having a reception dinner to celebrate Jake and Kierra's marriage, and we'd hope you can come!
+We're having a reception dinner to celebrate Jake and Kierra's marriage, and we hope you can come!
 
 ## Date & Time
 
